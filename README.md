@@ -1,1 +1,1 @@
-# practica_github
+Macgyver J Sequeira A
